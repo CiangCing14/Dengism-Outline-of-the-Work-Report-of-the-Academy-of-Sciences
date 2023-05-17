@@ -1,2 +1,2 @@
-# Dengism-Outline-of-the-Work-Report-of-the-Academy-of-Sciences
-Dengism-Outline-of-the-Work-Report-of-the-Academy-of-Sciences.
+# 科学院工作汇报提纲（九月二十六日向国务院汇报稿）（供批判）
+科学院工作汇报提纲（九月二十六日向国务院汇报稿）（供批判）。
